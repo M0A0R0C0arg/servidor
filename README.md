@@ -1,2 +1,3 @@
-creado por : Miguel Angel Rojas Castañeda
-con la ayuda del profesor henrry hortega
+Creado Por Emanuel Moncada Neira 1115 
+
+Con la ayuda de el profesor Henry Ortegon
